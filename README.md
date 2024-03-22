@@ -5,4 +5,4 @@
 ![Screenshot 2024-03-21 140644](https://github.com/A-Kavipriya/g2/assets/146504764/95a70e9e-85e0-4534-a3e8-2adef1c4633b)
 ![Screenshot 2024-03-21 140658](https://github.com/A-Kavipriya/g2/assets/146504764/532486ea-6f08-4f92-9d81-a4b841455fc2)
 ![Screenshot 2024-03-22 104229](https://github.com/A-Kavipriya/g2/assets/146504764/b8e96ed7-f0db-42cf-b2f2-2fc8cc154031)
-![Screenshot 2024-03-22 104229](https://github.com/A-Kavipriya/g2/assets/146504764/55639344-1622-4f2c-aea8-ef7476f32818)
+
